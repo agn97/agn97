@@ -23,5 +23,5 @@
 </div><br/> 
 
 
-### Cursando Gestão da Tecnologia da Informação - 2º ano 3º semestre <br/>
+### Cursando Gestão da Tecnologia da Informação <br/>
 Entusiasta da tecnologia, Aprender para Ensinar!!
